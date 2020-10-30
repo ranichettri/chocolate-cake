@@ -1,0 +1,1 @@
+Chocolate cake or chocolate gâteau(in french) is a cake flavored with melted chocolate, cocoa powder, or both.
